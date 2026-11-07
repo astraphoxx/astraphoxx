@@ -8,8 +8,8 @@ This is Astra Phox!
 
 
 ## Connect With Us
-- [Website](https://vyralabstech.com)
-- [Core Chat Waitlist](https://vyralabstech.com/waitlist)
+- [Astra Phox Website](https://vyralabstech.com)
+- [Phox Waitlist](https://vyralabstech.com/waitlist)
 - [Instagram](https://instagram.com/astraphoxx)
 - [Facebook Page](https://facebook.com/astraphoxx)
 - [YouTube](https://youtube.com/@astraphoxx)
